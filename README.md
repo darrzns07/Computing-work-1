@@ -62,6 +62,12 @@ Weak
 
 Afraid
 
+Insignificant
+
+Useless
+
+Stupid
+
 Young sec ones
 
 She is like a mother
